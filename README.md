@@ -1,1 +1,1 @@
-
+My ideas will shine.
